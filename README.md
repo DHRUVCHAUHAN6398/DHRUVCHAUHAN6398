@@ -5,8 +5,7 @@
 - - https://www.instagram.com/maharanacodingofficial/
 - - https://www.facebook.com/MAHARANACODINGOFFICIAL/
 - - https://www.linkedin.com/in/dhruvchauhan6398/
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- ⚡ You are the best Teacher of yours . 
 <!---
 DHRUVCHAUHAN6398/DHRUVCHAUHAN6398 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
